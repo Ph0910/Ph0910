@@ -13,5 +13,3 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 ### Pode entrar em contato comigo 💼📊
 
 pedro.henrique.barreto@escola.pr.gov.br
-
-![https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8]
