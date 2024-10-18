@@ -14,4 +14,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 pedro.henrique.barreto@escola.pr.gov.br
 
-[!](https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8)
+![https://itunes.apple.com/app/apple-store/id917932200?pt=39040802&ct=Media1GIFV2&mt=8]
